@@ -1,6 +1,6 @@
 # Ангерман Мэри
 
-![моя фоточка](https://vk.com/mary_deer?z=photo295154586_457249529%2Falbum295154586_0%2Frev)
+![моя фоточка](https://lh3.googleusercontent.com/a/AGNmyxbnM_G-OzmPqeGKdNPDWPmPCqrLE-vXNtJFc-cHnVU=s288)
 
 - много рисую
 - люблю спать
